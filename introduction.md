@@ -1,0 +1,4 @@
+- Họ và tên: Hồ Ngọc Bảo Trân
+- Chuyên ngành: Quan hệ công chúng
+- Kỹ năng: Tự tin
+- Mục tiêu nghề nghiệp: trở thành chuyên viên Pr giỏi
